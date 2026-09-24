@@ -1,4 +1,4 @@
-
+# how to install hwid reset 2026. Our registry key modification hwid reset are fully tested and ready for use.
 
 
 
